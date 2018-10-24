@@ -1,1 +1,1 @@
-Activity of this repo: off
+Activity on this repo: off
